@@ -4,7 +4,7 @@
 genetically modified Koichi chan  
 
 original: ハルトマンの妖怪少女 by ZUN  
-aranged by laplace (@yamadala)  
+arranged by laplace (@yamadala)  
 
 ### how to make .wav file
 
