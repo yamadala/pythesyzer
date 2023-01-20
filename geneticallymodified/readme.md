@@ -2,6 +2,7 @@
 
 遺伝子組み換えこいしﾁｬﾝ  
 genetically modified Koichi chan  
+https://www.youtube.com/watch?v=t4i23nLpr8s  
 
 original: ハルトマンの妖怪少女 by ZUN  
 arranged by laplace (@yamadala)  
